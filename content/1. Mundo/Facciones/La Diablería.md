@@ -1,0 +1,1 @@
+Su objetivo es dar caza a las criaturas sobrenaturales de [[El Alcance]]

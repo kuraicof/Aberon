@@ -1,0 +1,1 @@
+Sus padres mueren. Oficialmente por criaturas de la oscuridad. Extraoficialmente...?

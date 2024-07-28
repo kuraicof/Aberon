@@ -1,0 +1,4 @@
+# Lugares
+
+[[Bastela]]
+[[Olost]]
